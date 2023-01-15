@@ -7,4 +7,3 @@
 - 📫 How to reach me: https://www.linkedin.com/in/navai-suleymanli-49a6a9209/
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: my height is 187 LOL
-- 
