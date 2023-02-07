@@ -5,4 +5,4 @@
 - 👯 I’m looking to collaborate on game dev
 - 💬 Ask me about Unity, C#, C++, hackathons
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: my height is 187 LOL
+- ⚡ Fun fact: my height is 187 meters
